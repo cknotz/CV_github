@@ -1,3 +1,3 @@
 # My CV
 
-Not more to see here!
+That's all there is to it. Not more to see here!
